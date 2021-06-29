@@ -1,1 +1,1 @@
-
+> *Miniature faking, also known as diorama effect or diorama illusion, is a process in which a photograph of a life-size location or object is made to look like a photograph of a miniature scale model.* - Wikipedia
